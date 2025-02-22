@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @katerueckert
+- 👀 I’m interested in building cool websites!
+- 🌱 I’m currently learning Computer Science with a minor in Artificial Intelligence and Graphic Design.
+- 💞️ I’m looking to collaborate on projects once I am graduated or at my internship!
+- 📫 How to reach me: katherinerueckert18@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I own chickens and some of them lay blue/green eggs!
